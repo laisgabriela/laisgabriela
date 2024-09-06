@@ -12,5 +12,5 @@ Meu nome é Laís Gabriela Coelho
   
   @_laiscoelhs
 
-![](https://tenor.com/pt-BR/view/panda-love-gif-20360930)
+![](https://media1.tenor.com/m/qxqNKoLmTfYAAAAC/love-you.gif)
 ![](https://media1.tenor.com/m/jxnkGfsUyYUAAAAd/maya-massafera-tchau.gif)
